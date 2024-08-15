@@ -15,3 +15,5 @@
 # R-Ank
 
 # Pelo jeito, A Vida, também conhecida como XxXVida_Lok4XxX era tão popular mas tão ruim no jogo que a rito gomes criou um rank somente para ela logo abaixo de bronze !
+
+# Então, ao ver seu rank unico, indigno até do bronze, a vida se esvaiu...
