@@ -13,3 +13,5 @@
 # Mas mesmo assim superando seu horrivel medo de vermelho, a vida foi lá e criou uma conta na twitch e no valorant, virando a maior streamer de valorant do mundo, seu rank ? :
 
 # R-Ank
+
+# Pelo jeito, A Vida, também conhecida como XxXVida_Lok4XxX era tão popular mas tão ruim no jogo que a rito gomes criou um rank somente para ela logo abaixo de bronze !
