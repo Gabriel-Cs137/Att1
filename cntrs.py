@@ -19,3 +19,5 @@
 # Então, ao ver seu rank unico, indigno até do bronze, a vida se esvaiu...
 
 # E DO NADA APARECE GOJO COM UMA CADEIRA DE METAL E BATE NA VIDA COM ELA !
+
+# Mas a vida não desistiu, logo do canto da sala, apareceu Master Chief e ele matou ambos. Fim.
